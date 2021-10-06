@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @lDantl
+- 👀 I’m interested in programming
+- 🌱 I’m currently learning in School 21 from Kazan
